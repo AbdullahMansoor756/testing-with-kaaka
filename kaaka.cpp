@@ -1,2 +1,2 @@
-# jahan me aesa kn ha
-k jis ko gham mila nai
+# gulon me rang bhary
+baad e nobahar chly
